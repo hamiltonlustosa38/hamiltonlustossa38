@@ -2,7 +2,7 @@
 
 Me chamo José Hamilton
 
-- Estudando 1°Ano do ensino médio;
+- Estudando 2°Ano do ensino médio;
 - Estou me desenvouvendo nesse site;
 - Estou utilizando esse site para compartinhamentos de projetos e também para me desenvouver e me organizar.
 
